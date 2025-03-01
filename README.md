@@ -104,7 +104,7 @@ Using the **Top of the Mornin' Coffee discount code** not only **saves you money
 
 This discount won’t last forever! If you love **premium coffee** and want to save on your next purchase, **now** is the perfect time. Use the **Top of the Mornin' Coffee discount code "SFKWCCFW"** today and **enjoy 20% off**.
 
-[**Shop Now**](#)
+[**Shop Now**](https://topofthemornincoffee.com/SFKWCCFW)
 
 ---
 
